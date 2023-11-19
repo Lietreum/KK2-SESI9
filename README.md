@@ -1,1 +1,1 @@
-# Polymorphnya belum selesai, ngantuk gw
+# Polymorphnya (Analisi) belum selesai, ngantuk gw$
